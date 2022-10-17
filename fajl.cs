@@ -1,1 +1,2 @@
-Bas ne znam sta da napisemo
+Ne znam sta da napisemo
+
