@@ -1,1 +1,1 @@
-Sta da napisemo
+Ne znam sta da napisemo
